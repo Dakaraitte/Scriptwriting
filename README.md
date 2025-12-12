@@ -1,4 +1,4 @@
-All of these files are unpublished and their purpose is just to show my writing skill.
+All of these files are unpublished and their purpose is just to show my writing skills.
 
 Dialog is an invented character profile with, then, a screenplay with a character taken from the already existing game "Xenoblade Chronicles 3", Miyo.  
 
