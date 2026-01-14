@@ -7,3 +7,5 @@ In Pre-mission monologue there are two invented monologues acted by Link (from "
 In Barks there's a contextualized woman barks. 
 
 Screenplay shows a scene with all invented characters at the beginning of the story. 
+
+Bio Aria is a biography of an invented character. 
